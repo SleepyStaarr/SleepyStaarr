@@ -2,7 +2,7 @@
 ---
 🛦 I LOVE AVIATION AND GASK MASKS 
 
-go read my [pronouns page](https://en.pronouns.page/@Staarr) and [strawpage](https://staarrararara.straw.page) It's not really necessary but it's good to know stuff about me byi
+go read my [pronouns page](https://en.pronouns.page/@Staarr) and [strawpage](https://staarrararara.straw.page) It's not really necessary but it's good to know stuff about me byi because most of you pt people are WEIRD!!
 
 
                                     |
