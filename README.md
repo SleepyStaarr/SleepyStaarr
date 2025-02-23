@@ -1,7 +1,7 @@
 ## Staarr
 ---
 🛦 I LOVE AVIATION AND GASK MASKS 
-Usually online at the end of the night on weekdays (if i'll even be on) and even then i wont be speaking much, !!!busy with school, exams and projects!!!
+- Usually online at the end of the night on weekdays (if i'll even be on) and even then i wont be speaking much, !!!busy with school, exams and projects!!!
 
 
 
