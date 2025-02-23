@@ -1,6 +1,9 @@
 ## Staarr
 ---
 🛦 I LOVE AVIATION AND GASK MASKS 
+Usually online at the end of the night on weekdays (if i'll even be on) and even then i wont be speaking much, !!!busy with school, exams and projects!!!
+
+
 
 UPDATE: before that, keep in mind that i play ponytown less. still good to read these  vv
 
