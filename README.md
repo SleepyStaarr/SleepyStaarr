@@ -5,7 +5,7 @@ a-10 brrrrrt
 ![image](https://github.com/user-attachments/assets/d8c08f1c-bd34-49ca-a6e9-05c4aac15fd9)
 
 
-i play ponytown only because of **one friend!!** if you want to interact then get to me thru dc or while im online!!
+🛦 i play ponytown only because of **one friend!!** if you want to interact then get to me thru dc or while im online!!
 
 ^ but keep in mind i don't like interacting with most pt people, 99% of the time they're weirdos or it just doesnt work
 
