@@ -6,6 +6,7 @@ a-10 brrrrrt
 
 
 i play ponytown only because of **one friend!!** if you want to interact then get to me thru dc or while im online!!
+
 ^ but keep in mind i don't like interacting with most pt people, 99% of the time they're weirdos or it just doesnt work
 
 🛦 I LOVE AVIATION AND GASK MASKS AND UHH INVINCIBLE
