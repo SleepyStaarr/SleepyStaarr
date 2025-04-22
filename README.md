@@ -1,12 +1,15 @@
 ## Staarr
+
+**i play ponytown only because of one friend!! if you want to interact then get to me thru dc or while im online!!**
+^ but keep in mind i don't like interacting with most pt people, 99% of the time they're weirdos or it just doesnt work
 ---
-🛦 I LOVE AVIATION AND GASK MASKS 
-- Will likely remake everything soon
-- Usually online at the end of the day on weekdays (if i'll even be on) and even then i wont be speaking much, **!!!busy with school, exams and projects!!!**
+🛦 I LOVE AVIATION AND GASK MASKS AND UHH INVINCIBLE
+
+- other than being online for a friend, i have school, exams, job and allat so don't expect me to constantly answer,,,,, i like my space 
 
 
 
-UPDATE: before that, keep in mind that i play ponytown less (online for some friends mostly). still good to read these   vv
+It's still nice to read these about me, incase u ever wanna interact. pronouns page and strawpage will get a remake.
 
 - I have a [linktree](https://linktr.ee/SleepyStaarr) with all my ponytown related sites. seperatated links below in case thats too much trouble
 
