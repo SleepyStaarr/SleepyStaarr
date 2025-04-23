@@ -20,7 +20,7 @@ It's still nice to read these about me, incase u ever wanna interact. pronouns p
 
 - I have a [linktree](https://linktr.ee/SleepyStaarr) with all my ponytown related sites. seperatated links below in case thats too much trouble
 
-[Strawpage](https://staarrararara.straw.page)
+[Strawpage](https://staarrplanetoucher.straw.page)
 [Pronouns page](https://en.pronouns.page/@Staarr)
 [Atabook](https://staarr.atabook.org)
 
