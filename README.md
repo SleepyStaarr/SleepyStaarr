@@ -11,7 +11,7 @@ a-10 brrrrrt
 
 🛦 I LOVE AVIATION AND GASK MASKS AND UHH INVINCIBLE
 
-- other than being online for a friend, i have school, exams, maybe a job and allat so don't expect me to constantly answer,,,,, i like my space 
+- other than being online for a friend, i have school, exams, a job (STAARR EMPLOYEMENT ERA)  and allat so don't expect me to constantly answer,,,,, i like my space 
 
 ![image](https://github.com/user-attachments/assets/b0540588-7230-4883-96dd-a6917b6209b7)
 
