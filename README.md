@@ -1,6 +1,11 @@
 ## Staarr
+  <img src="https://files.catbox.moe/efq8w9.jpg"/>  <img src="https://media.discordapp.net/attachments/837963403757748244/1384576824025022596/ezgif.com-crop_1.gif?ex=6852ef27&is=68519da7&hm=ada4b234933def80f22b54aed47477aa453897437d2d4b5102fbcab5ae2f8340&=&width=115&height=66">   <img src="https://s3.ezgif.com/tmp/ezgif-3888b84820db16.gif">
 
+  
 a-10 brrrrrt
+
+-- keep in mind i can get political, i HAVE to warn that i block all and any russia/israel supporters . it feels like most of you struggle to share a braincell with the likes of you
+I'm taking part in artfight! attack me and i'll make sure to revenge -> https://artfight.net/~Staarr 
 
 ![image](https://github.com/user-attachments/assets/d8c08f1c-bd34-49ca-a6e9-05c4aac15fd9)
 
@@ -12,13 +17,13 @@ a-10 brrrrrt
 
 🛦 I LOVE AVIATION AND GASK MASKS AND UHH INVINCIBLE
 
-- other than being online for a friend, i have ~~school, exams,~~ a job (STAARR EMPLOYEMENT ERA)  and allat so don't expect me to constantly answer,,,,, i like my space 
+- other than being online for a friend, i have ~~school, exams,~~ a job (STAARR EMPLOYEMENT ERA)  and allat so don't expect me to constantly answer,,,,, i like my space
+- keep in mind i can get political, i HAVE to warn that i block all and any russia/israel supporters . it feels like most of you struggle to share a braincell with the likes of you. 
 
 ![image](https://github.com/user-attachments/assets/b0540588-7230-4883-96dd-a6917b6209b7)
 
 
-It's still nice to read these about me, incase u ever wanna interact. pronouns page and strawpage will get a remake.
-
+strawpage is renewed!
 - I have a [linktree](https://linktr.ee/SleepyStaarr) with all my ponytown related sites. seperatated links below in case thats too much trouble
 
 [Strawpage](https://staarrplanetoucher.straw.page)
