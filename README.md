@@ -5,7 +5,8 @@
 a-10 brrrrrt
 
 -- keep in mind i can get political, i HAVE to warn that i block all and any russia/israel supporters . it feels like most of you struggle to share a braincell with the likes of you
-I'm taking part in artfight! attack me and i'll make sure to revenge -> https://artfight.net/~Staarr 
+
+!!!!! I'm taking part in artfight! attack me and i'll make sure to revenge -> https://artfight.net/~Staarr 
 
 ![image](https://github.com/user-attachments/assets/d8c08f1c-bd34-49ca-a6e9-05c4aac15fd9)
 
