@@ -1,5 +1,6 @@
 ## Staarr
-  <img src="https://files.catbox.moe/efq8w9.jpg"/>  <img src="https://media.discordapp.net/attachments/837963403757748244/1384576824025022596/ezgif.com-crop_1.gif?ex=6852ef27&is=68519da7&hm=ada4b234933def80f22b54aed47477aa453897437d2d4b5102fbcab5ae2f8340&=&width=115&height=66">   <img src="https://s3.ezgif.com/tmp/ezgif-3888b84820db16.gif">
+  <img src="https://files.catbox.moe/efq8w9.jpg"/>  <img src="https://media.discordapp.net/attachments/837963403757748244/1384576824025022596/ezgif.com-crop_1.gif?ex=6852ef27&is=68519da7&hm=ada4b234933def80f22b54aed47477aa453897437d2d4b5102fbcab5ae2f8340&=&width=115&height=66">   ![planespin](https://github.com/user-attachments/assets/01c50b02-e51f-4368-b363-4e1fefa9b47b)
+
 
   
 a-10 brrrrrt
