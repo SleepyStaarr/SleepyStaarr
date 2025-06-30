@@ -20,7 +20,6 @@ a-10 brrrrrt
 🛦 I LOVE AVIATION AND GASK MASKS AND UHH INVINCIBLE
 
 - other than being online for a friend, i have ~~school, exams,~~ a job (STAARR EMPLOYEMENT ERA)  and allat so don't expect me to constantly answer,,,,, i like my space
-- keep in mind i can get political, i HAVE to warn that i block all and any russia/israel supporters . it feels like most of you struggle to share a braincell with the likes of you. 
 
 ![image](https://github.com/user-attachments/assets/b0540588-7230-4883-96dd-a6917b6209b7)
 
