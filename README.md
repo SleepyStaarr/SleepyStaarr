@@ -14,7 +14,7 @@ I have school, a job, a partner and basically life outside of ponytown/online sp
 🛦 The sites below will probably give more info about me, go read them gogogogogogogogogogogogo        
      I might seem serious on here but trust me I'm not  :3c 
 
-[Strawpage](https://staarrplanetoucher.straw.page)
+[Strawpage](https://staarrplanetoucher.straw.page)          
 [Pronouns page](https://en.pronouns.page/@Staarr)  
 [Atabook](https://staarr.atabook.org)  
 Outside of PT [Carrd](https://whimsystaarr.carrd.co)  
