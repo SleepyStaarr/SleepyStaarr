@@ -1,16 +1,20 @@
-# Staarr
- #### tiny about me
+<img src="https://files.catbox.moe/z0ixvx.jpg">
+
+<h2 align="center">Staarr</h2>
+
+<h4 align="center">Short info</h4>
+
 ![image](https://github.com/user-attachments/assets/d8c08f1c-bd34-49ca-a6e9-05c4aac15fd9)
 
-🛦 I might be seen on PT from time to time but I'm usually AFK/Offtab. I will probably not interact first :,)  
-I have a life outside of online space. I have a job, school and whatnot so i might not be online often. 
+🛦 I might be seen on PT from time to time but I'm usually AFK/Offtab. Because of that i might not respond at all (or might respond late to whispers). You are free to c+h me whenever, I don't mind at all.
+I have school, a job, a partner and basically life outside of ponytown/online space. I might not respond always or will reply late.
 
-^ If you can't respect that, it's best to not befriend me. I like my space.
+^ If you can't respect that, it's best to not avoid me. I don't like being forced to interact when I'm busy.
 
 🛦 The sites below will probably give more info about me, go read them gogogogogogogogogogogogo        
-     I really like jets :3c 
+     I might seem serious on here but trust me I'm not  :3c 
 
-[Strawpage](https://staarrplanetoucher.straw.page)  
+[Strawpage](https://staarrplanetoucher.straw.page)
 [Pronouns page](https://en.pronouns.page/@Staarr)  
 [Atabook](https://staarr.atabook.org)  
 Outside of PT [Carrd](https://whimsystaarr.carrd.co)  
