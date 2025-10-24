@@ -7,7 +7,7 @@
 ![image](https://github.com/user-attachments/assets/d8c08f1c-bd34-49ca-a6e9-05c4aac15fd9)
 
 🛦 I might be seen on PT from time to time but I'm usually AFK/Offtab. Because of that i might not respond at all (or might respond late to whispers). You are free to c+h me whenever, I don't mind at all.
-I have school, a job, a partner and basically life outside of ponytown/online space. I might not respond always or will reply late.
+I have school, ~~a job~~ no more! , a partner and basically life outside of ponytown/online space. I might not respond always or will reply late.
 
 ^ If you can't respect that, it's best to avoid me. I don't like being forced to interact when I'm busy.
 
