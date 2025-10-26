@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/e6fhub.jpg">
+<img src="https://files.catbox.moe/somn5q.png">
 
 <h2 align="center">Staarr</h2>
 
