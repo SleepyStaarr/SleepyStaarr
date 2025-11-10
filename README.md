@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/d9pwcq.png">
+<img src="<img width="3062" height="600" alt="image" src="https://github.com/user-attachments/assets/71ac4056-e7cc-4699-84bd-33d45d1061a9" />
 
 <h2 align="center">Staarr</h2>
 
