@@ -18,7 +18,7 @@ I have school, ~~a job~~ no more! , a partner and basically life outside of pony
 
 [Strawpage](https://staarrplanetoucher.straw.page)          
 [Pronouns page](https://en.pronouns.page/@Staarr)  
-[Atabook](https://staarr.atabook.org)    < for faster and more direct answers
+[Atabook](https://staarr.atabook.org) < for faster and more direct answers                     
 Outside of PT [Carrd](https://whimsystaarr.carrd.co)  
 
 
