@@ -11,12 +11,14 @@ I have school, ~~a job~~ no more! , a partner and basically life outside of pony
 
 ^ If you can't respect that, it's best to avoid me. I don't like being forced to interact when I'm busy.
 
+^ I will be on ponytown __while I'm doing something__ so if I dont reply I am probably busy with something else. please keep that in mind and do not spam my name !
+
 🛦 The sites below will probably give more info about me, go read them gogogogogogogogogogogogo        
      I might seem serious on here but trust me I'm not  :3c 
 
 [Strawpage](https://staarrplanetoucher.straw.page)          
 [Pronouns page](https://en.pronouns.page/@Staarr)  
-[Atabook](https://staarr.atabook.org)  
+[Atabook](https://staarr.atabook.org)    < for faster and more direct answers
 Outside of PT [Carrd](https://whimsystaarr.carrd.co)  
 
 
