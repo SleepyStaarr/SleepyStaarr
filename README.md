@@ -1,4 +1,4 @@
-<img width="3062" height="600" alt="image" src="https://github.com/user-attachments/assets/71ac4056-e7cc-4699-84bd-33d45d1061a9" />
+<img src="https://i.postimg.cc/nrBMHyjM/image-2026-03-06-180054065-(1).png" />
 
 <h2 align="center">Staarr</h2>
 
